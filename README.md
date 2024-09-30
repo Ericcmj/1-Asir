@@ -25,3 +25,4 @@ También me encanta hacerle fotos en 0.5 para reirme un poco de ellos, como el d
 * Me pasa algo similar con la música ya que cuando tengo una canción favorita, la voy quemando hasta que deja de ser mi canción nº 1 🎶🎵
 * Tengo una enfermedad super rara en el corazón, que me la detectaron cuando jugaba a fútbol de pequeño, esta se llama Wolf-Parkinsson-White [Información sobre la enfermedad](https://medlineplus.gov/spanish/ency/article/000151.htm)
 * Antes leía un montón de libros pero con el paso del tiempo he ido reduciendo mucho esta actividad por falta de tiempo y también de ganas. 📕
+* Me gusta cocinar pero soy un desastre _(le pongo mucho entusiasmo)_
