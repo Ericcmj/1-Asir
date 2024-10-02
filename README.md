@@ -26,3 +26,9 @@ También me encanta hacerle fotos en 0.5 para reirme un poco de ellos, como el d
 * Tengo una enfermedad super rara en el corazón, que me la detectaron cuando jugaba a fútbol de pequeño, esta se llama Wolf-Parkinsson-White [Información sobre la enfermedad](https://medlineplus.gov/spanish/ency/article/000151.htm)
 * Antes leía un montón de libros pero con el paso del tiempo he ido reduciendo mucho esta actividad por falta de tiempo y también de ganas. 📕
 * Me gusta cocinar pero soy un desastre _(le pongo mucho entusiasmo)_
+* De pequeño, siempre me dije:
+> Quiero ser jugador profesional de juegos, y voy a ser el mejor.
+* Al final como es obvio no pude ser jugador profesional, porque tuve un ordenador bueno muy tarde, y con una edad que ya tenía que ponerme a estudiar más. Igualmente, he podido jugar de manera amateur en varios equipos de juegos como son LoL y Valorant.
+![valorant gif](https://media4.giphy.com/media/IvOFcGZeDA76P6XryO/200.webp?cid=790b7611xucfyd056738ql1san1izofr0ghtrbc0kysnmf4w&ep=v1_gifs_search&rid=200.webp&ct=g)
+![lol gif](https://media4.giphy.com/media/3oKIP73vEZmJjFNXtC/giphy.webp?cid=ecf05e476iitpo1rj3l10c735g43xkedaltfs1vmpv8lveam&ep=v1_gifs_search&rid=giphy.webp&ct=g)
+* 
