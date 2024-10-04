@@ -32,6 +32,6 @@ También me encanta hacerle fotos en 0.5 para reirme un poco de ellos, como el d
 ![valorant gif](https://media4.giphy.com/media/IvOFcGZeDA76P6XryO/200.webp?cid=790b7611xucfyd056738ql1san1izofr0ghtrbc0kysnmf4w&ep=v1_gifs_search&rid=200.webp&ct=g)  
 ![lol gif](https://media4.giphy.com/media/3oKIP73vEZmJjFNXtC/giphy.webp?cid=ecf05e476iitpo1rj3l10c735g43xkedaltfs1vmpv8lveam&ep=v1_gifs_search&rid=giphy.webp&ct=g)
 * El estilo musical que más me gusta es el rap pero en general me gustan todos los géneros musicales. Uno de mis artistas favoritos es Kaze y esta es una foto de él![Kaze](https://imagenes.20minutos.es/files/image_1920_1080/uploads/imagenes/2023/11/29/kaze-rodaje-33.jpeg)
-* 
-* 
+
+Y hasta aquí mi portafolio😉
 
